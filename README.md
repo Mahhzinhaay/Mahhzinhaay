@@ -1,6 +1,6 @@
 ### Oiee :)
 
-Meu nome é Mara Gbabriela
+Meu nome é Mara Gabriela
 
 - 💜 Estou estudando na [Alura](http://www.alura.com.br) 
 - 🎨 Estou me aprimorando no alura 
